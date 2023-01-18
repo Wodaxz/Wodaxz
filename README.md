@@ -1,4 +1,4 @@
-# Ola meu nome é Felipe(Apelido:Wodaxz) 👋
+# Ola meu nome é Felipe 👋
 ## Tenho 15 anos,E amo tecnologia.
   
   
