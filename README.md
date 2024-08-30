@@ -1,5 +1,5 @@
-# Ola meu nome é Felipe 👋
-## Tenho 15 anos,E amo tecnologia.
+# Ola meu nome é Felipe Hauss
+
   
   
 - 🌱 Atualmente estou aprendendo HTML/CSS...
